@@ -1,4 +1,4 @@
-👩🏻‍💻Olá, Seja bem vind0! ༼ つ ◕_◕ ༽つ
+👩🏻‍💻Olá, Seja bem vind0!  (✿◠‿◠)
 
 
 💻 Hoje trabalho como Programadora Trainee.
